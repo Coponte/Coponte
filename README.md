@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **everything**
 
-- 📫 How to reach me **skidd.cc@gmx.de**
+- 📫 How to reach me **coponte@gmx.de**
 
 - ⚡ Fun fact **https://cdn.discordapp.com/attachments/827912371820953630/855784838069354496/16208594141631.mp4**
 
